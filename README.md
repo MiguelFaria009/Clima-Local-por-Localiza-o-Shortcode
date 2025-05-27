@@ -1,0 +1,1 @@
+# Clima-Local-por-Localiza-o-Shortcode
